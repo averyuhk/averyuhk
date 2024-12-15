@@ -6,4 +6,3 @@
 
 Everything else you need about me like Byi and more is in rentry, but not yet! Since im a busy little feller, Im doing a lot of work and don't have time to unfortunately work on it!  
 
-Also my mood changes a lot.. unfortunately i dont know what could be the cause of it BUT be completely aware !! :D
